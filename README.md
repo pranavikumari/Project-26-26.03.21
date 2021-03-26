@@ -1,6 +1,6 @@
 # Project-26-26.03.21
 
-INSTRUCTIONS
+#INSTRUCTIONS
 1)Preheat the oven to 375°. Spray the cookie sheet with nonstick spray or you can use a liner.Parchment papers work very well also.
 
 2)Mix together the two sugars. Be sure to break apart any hard chunks of brown sugar and get the two sugars fully mixed. We prefer dark brown sugar because we think it has a deeper, more caramel flavor, but light brown sugar will make your cookies taste a bit sweeter.
